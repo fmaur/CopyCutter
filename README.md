@@ -1,4 +1,4 @@
-# M122_ST20b_CopyCutter_Mauron_Winter
+ M122_ST20b_CopyCutter_Mauron_Winter
 LB1 M122
 
 ERSTELLER:
